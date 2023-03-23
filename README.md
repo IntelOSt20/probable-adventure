@@ -1,2 +1,4 @@
-# probable-adventure
-e85dc571-df49-4b3f-81db-d3c365e28558
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4596062645672677"
+     crossorigin="anonymous"></script>
+<ins class="adsbygoogle"
+     style="display:bl
